@@ -1,4 +1,3 @@
 # hello-world
-Just another repository
 
-this is the new shit that is going on that tasdkjfa;dklfjadfj;k
+fuck thhis shit now this poor guy is going to have half the shop talking about his wondershit
