@@ -1,5 +1,4 @@
 # hello-world
 Just another repository
 
-My name is Bob 
-I have a big mustache and I like red cars
+this is the new shit that is going on that tasdkjfa;dklfjadfj;k
